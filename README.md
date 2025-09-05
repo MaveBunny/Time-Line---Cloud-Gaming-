@@ -6,4 +6,4 @@ Este trabalho foi realizado para a UC - Coding, na faculdade Senac. a pesquisa f
 
 
 
-[Clique aqui](https://miro.com/app/board/uXjVJOMRpWo=/?share_link_id=597011816591)
+Segue o link para saber mais sobre o projeto:[Clique aqui](https://miro.com/app/board/uXjVJOMRpWo=/?share_link_id=597011816591)
